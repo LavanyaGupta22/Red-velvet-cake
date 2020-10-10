@@ -1,0 +1,1 @@
+The recipe is of a red velvet cake. It is traditionally a reddish-brown or scarlet or crimson coloured layer cake. It is layered with multiple layers of icing of vanilla. It gets the name velvet because of its smooth, bubbly and foamy texture. It goes well with cheese, butter, cookies and cream, custard or any fruit depending on taste. 
